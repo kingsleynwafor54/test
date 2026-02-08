@@ -1,1 +1,1 @@
-### Welcome to Kings Channel,Kindly Subscribe to this channel
+### Welcome to Kings Channel,Kindly Subscribe to this Page
